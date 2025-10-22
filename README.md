@@ -75,7 +75,7 @@ Versatile Full-Stack Mobile Developer with over 7 years of experience in designi
 ---
 
 ### 3. AmbulanceChap
-**Associated with:** Tunga  
+**Associated with:**   
 **Link:** [Download on APKPure](https://apkpure.com/ambulancechap/chap.taxichap)
 
 **Description:**
@@ -94,7 +94,7 @@ Versatile Full-Stack Mobile Developer with over 7 years of experience in designi
 ---
 
 ### 4. Inspec Pack
-**Associated with:** Tunga  
+**Associated with:**  
 **Link:** [Download on APKPure](https://apkpure.com/inspec-pack/com.inspec)
 
 **Description:**
