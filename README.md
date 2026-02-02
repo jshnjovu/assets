@@ -1,7 +1,7 @@
 # JOSHUA NJOVU
 
-**TEL:** \+254700716751  
-**Contacts:** [njovujsh@gmail.com](mailto:njovujsh@gmail.com), [LinkedIn](https://www.linkedin.com/in/njovu-joshua/)
+**TEL:** \+63 961 033 1326  
+**Contacts:** [njovujsh@gmail.com](mailto:njovujsh@gmail.com), [LinkedIn](https://www.linkedin.com/in/njovu-joshua/), [Stackoverflow](https://stackoverflow.com/users/3384760/joash%20) (1M+ views)
 
 ## PROFILE
 
